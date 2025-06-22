@@ -1,1 +1,1 @@
-# -tica-Computador-e-Sociedade
+# Etica-Computador-e-Sociedade
